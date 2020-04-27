@@ -3,12 +3,12 @@
 这里有些信息是来自于搜房网的一个[帖子](http://xiziwanbl.fang.com/bbs/1210348984~-1/31940346_31940346_1.htm)，帖子很长，对未来的期望这里会有一些讨论。手机[倒序](http://m.fang.com/bbs/?c=bbs&a=postinfo&city=sh&sign=1210348984&masterId=31940346&order=desc)再此。 新房交易量[数据](http://data.house.163.com/sh/productrank/week_songjiang_all_all_todayflat_desc_1.html). 上海轨道交通[俱乐部](http://shanghai.metrofans.cn/forum-352-1.html)。松江[土地市场](http://www.shtdsc.com/2016/tdjy/dkjs/?type=0&qx=%E6%9D%BE%E6%B1%9F&yt=&mc=&bh=&fs=undefined&zt=&qsjs=&qsje=&jdr=)。轨交网友做的[12号线方案](http://shanghai.metrofans.cn/thread-376915-1-1.html?_dsign=35f511c3)。湖苏沪[高铁吧](https://tieba.baidu.com/f?kw=%E6%B9%96%E8%8B%8F%E6%B2%AA%E9%AB%98%E9%93%81&fr=index)。[茸城论坛](http://bbs.sj.net.cn/)。[G60上海松江科创走廊](http://g60.songjiang.gov.cn/WebSite/Default.aspx)。[松江府](http://www.songjiang.gov.cn/)。[松江信访](http://qxf.sh.gov.cn/310117/reply.setInit.do?page=1)。茸城民生服务热线37780000（松江的12345）。
 帖子被一些业主群提及，诚惶诚恐，本帖主在收集信息，大多数信息来源以及荣誉应该归于搜房神贴的楼主soofunid以及其他安居乐业于松江的热心人士们。
 图作者：mcg5@fang.com
-<br>
+br tag
 *[原始贴](https://www.libaclub.com/t_113_8721825_1.htm)2014年12月29日发于篱笆网，2020年4月23日由于篱笆经营者的言论控制，非法删帖，因而迁于此处。
 ![](https://github.com/simido1981/songjiang/blob/master/images/松江大学城主图.jpg)
-<br>
+br tag
 ## 最新消息
-<br>
+br tag
 ### 松江外国语实验学校  
 莱顿南面的教育配套用地。 在商务区万科附近规划的教育用地。上海市松江区教育局
 2018年4月17日： 莱顿小城南面区域规划有一所九年一贯制学校和一所幼儿园。目前已启动项目前期办理手续，计划2018年底开工建设，2020年9月建成使用。
